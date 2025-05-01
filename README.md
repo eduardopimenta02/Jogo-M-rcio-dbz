@@ -2,6 +2,7 @@
 
 🧑‍💻 Criado por: Eduardo Eugenio Pimenta
 
+Acesso para jogar: https://pimentaa07.itch.io/jogo-dbz-2025
 
 
 - Descrição:
